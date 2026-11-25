@@ -5,7 +5,7 @@
 [View the bounty](https://make.fun/bounty/u-suga-two-lines-to-your-past-self-f36c83ca)
 
 > Do not skip the audition on the rainy Tuesday in March — the room is half empty and the judges are actually listening.
-> That one yes would have put you on stage a year earlier, and every late start after it traces back to that missed door.
+> That one yes would have put you on stage a year earlier, and every late start since traces back to that one missed door.
 
 ## Run
 
